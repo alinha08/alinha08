@@ -1,16 +1,15 @@
-### Hi there 👋
+### Bem vindo ao meu perfi! 🥇
 
-<!--
-**alinha08/alinha08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome e Allan Pierry Anterio Woldam
 
-Here are some ideas to get you started:
+-Estou estudando na plataforma alura
+-Estou me desenvolvendo nas linguagens javascript,html e css
+-Utilizo este espaço para organizaçao e compartilhamento dos meus projetos 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Voce pode entrar em contado comigo 📭
+
+allan.woldam@escola.pr.gov.br
+
+
+
+![](https://media.tenor.com/Unvf4qRPfc8AAAAd/r4ymo.gif )
