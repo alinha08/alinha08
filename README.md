@@ -2,13 +2,13 @@
 
 Meu nome e Allan Pierry Anterio Woldam
 
--Estou estudando na plataforma alura
--Estou me desenvolvendo nas linguagens javascript,html e css
--Utilizo este espaço para organizaçao e compartilhamento dos meus projetos 
+-Estou estudando na plataforma alura e dando o cu
+-Estou me desenvolvendo nas linguagens javascript,html e css meu bagui e sentar na cabeça
+-Utilizo este espaço para organizaçao e compartilhamento dos meus projetos muito
 
 ### Voce pode entrar em contado comigo 📭
 
-allan.woldam@escola.pr.gov.br
+onlyfans.com/alinharabudo
 
 
 
